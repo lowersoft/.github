@@ -1,1 +1,1 @@
-<img width="9999" alt="lwg" src="https://github.com/user-attachments/assets/2933079d-24e9-46fd-9b40-8bf7641b9b22" />
+<img width="9999" alt="lwg_v2" src="https://github.com/user-attachments/assets/3af10fce-d35a-416e-bd62-ec8749a61eda" />
